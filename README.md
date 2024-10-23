@@ -1,3 +1,4 @@
+How to Get Free Diamonds in Free Fire: Tips and Tricks
 Free Fire, one of the most popular battle royale games, is known for its high-energy gameplay and exciting in-game purchases. Diamonds, the premium currency in Free Fire, allow players to unlock special characters, buy exclusive skins, and enjoy various other in-game perks. However, not everyone wants to spend money on diamonds. So, is there a way to get free diamonds in Free Fire? The answer is yes, and in this article, we’ll explore different methods to get free diamonds without breaking the bank.
 
 1. Participate in Events and Giveaways
